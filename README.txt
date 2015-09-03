@@ -1,3 +1,0 @@
-Eric Ruttenberg
-
-Chicago Cubs!
